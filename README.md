@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **msspranavasai@gmail.com**
 
-- 📄 Know about my experiences [https://iowastate-my.sharepoint.com/:b:/g/personal/pranava7_iastate_edu/Ed8u3KPh86ZMi8jf54G2Nr8BGG816jkBmNTMdJUjO3PDFg?e=66Rf0d](https://iowastate-my.sharepoint.com/:b:/g/personal/pranava7_iastate_edu/Ed8u3KPh86ZMi8jf54G2Nr8BGG816jkBmNTMdJUjO3PDFg?e=66Rf0d)
+- 📄 Know about my experiences [https://iowastate-my.sharepoint.com/:b:/g/personal/pranava7_iastate_edu/EQlGLiMDz35Dljn_Yjr1NjMB5M9u3H4cAIi8ntw7ODrtHQ?e=sqx70q](https://iowastate-my.sharepoint.com/:b:/g/personal/pranava7_iastate_edu/EQlGLiMDz35Dljn_Yjr1NjMB5M9u3H4cAIi8ntw7ODrtHQ?e=sqx70q)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
